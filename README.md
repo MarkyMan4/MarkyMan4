@@ -1,1 +1,1 @@
-![orbit](https://user-images.githubusercontent.com/37815834/235330994-ca2c8d83-572b-4125-8cd3-76d47f08a032.gif)
+![langtonloop (1)](https://user-images.githubusercontent.com/37815834/235331194-5e06435b-ce42-4638-b20c-a305df063687.gif)
